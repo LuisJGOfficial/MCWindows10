@@ -1,2 +1,2 @@
 # MCWindows10
-This system files can help you to unlock Minecraft Bedrock Windows 10 Edition.
+These 2 files are capable of unlocking Minecraft Windows 10 Edition without having to pay anything at all.
